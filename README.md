@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @ANAISABEL180209
-- 👀 I’m interested in 
+- 👀 I’m interested in 3D and 2D game development and 3D animation
 - 🌱 I’m currently learning to develop games
 - 💞️ I’m looking to collaborate on 3D animation and game development projects
 - 📫 How to reach me:email- anaisabelssm@gmail.com
